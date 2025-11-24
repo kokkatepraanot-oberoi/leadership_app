@@ -1,0 +1,1 @@
+# File placeholder – replace with full code from ChatGPT.
